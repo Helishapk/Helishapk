@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Helishapk
-- 👀 I’m interested in Gorilla tag, and fan game making, and MAKING A GTAG COPY
+- 👀 I’m interested in Gorilla tag, and fan game making.
 - 🌱 I’m currently learning More about unity
 - 💞️ I’m looking to collaborate on A gtag copy
 - 📫 How to reach me Message @_helish on discord
